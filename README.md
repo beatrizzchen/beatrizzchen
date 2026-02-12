@@ -6,7 +6,7 @@ My name is Beatriz, and I'm a current 3rd-year student at UC San Diego studying 
 
 Below are some final projects I've worked on throughout the years, including both at my home university and at Shanghai's Fudan University during study abroad. 
 
-Checked out my [LinkedIn](https://linkedin.com/in/beatrizchenm/) to connect and my [Portfolio](https://rosettarietastone.my.canva.site/bchenmai) to see some cool things I've created! 
+Check out my [LinkedIn](https://linkedin.com/in/beatrizchenm/) to connect and my [Portfolio](https://rosettarietastone.my.canva.site/bchenmai) to see some cool things I've created! 
 
 
 
