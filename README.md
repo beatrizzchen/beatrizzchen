@@ -1,4 +1,12 @@
-## Hi there 👋
+## About Me! 
+### Hi there 👋
+
+
+My name is Beatriz, and I'm a current 3rd-year student at UC San Diego studying Cognitive Science with a specialization in Design and Interaction as well as an International Business double major. I'm mainly interested in digital advertisement and human-computer design, with a minor interest in analytical marketing. I'm well versed in Adobe programs, Figma, and Python. My multicultural and diverse linguistic background has also influenced my design process and marketing campaigns. 
+
+Checked out my [LinkedIn](https://linkedin.com/in/beatrizchenm/) to connect and my [Portfolio](https://rosettarietastone.my.canva.site/bchenmai) to see some cool things I've created! 
+
+
 
 <!--
 **beatrizzchen/beatrizzchen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
