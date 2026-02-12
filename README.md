@@ -4,6 +4,8 @@
 
 My name is Beatriz, and I'm a current 3rd-year student at UC San Diego studying Cognitive Science with a specialization in Design and Interaction as well as an International Business double major. I'm mainly interested in digital advertisement and human-computer design, with a minor interest in analytical marketing. I'm well versed in Adobe programs, Figma, and Python. My multicultural and diverse linguistic background has also influenced my design process and marketing campaigns. 
 
+Below are some final projects I've worked on throughout the years, including both at my home university and at Shanghai's Fudan University during study abroad. 
+
 Checked out my [LinkedIn](https://linkedin.com/in/beatrizchenm/) to connect and my [Portfolio](https://rosettarietastone.my.canva.site/bchenmai) to see some cool things I've created! 
 
 
